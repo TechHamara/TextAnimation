@@ -1,6 +1,12 @@
 # TextAnimation
 textAnimation for appinventer kodular etc. 
 # NOTE In this extension multi line not support.
-You can create your text to awesome Animations 
-Preview
+You can create your text to awesome Animations <br>
+<br>Join our telegram Group of letest update
+<br>TECHHAMARA
+App Development help aia and Extension To Join This Group
+https://t.me/TECHHAMARA
+<br>
+Preview this Extension 
+<br>
 https://youtu.be/30lDAEMxCzQ
