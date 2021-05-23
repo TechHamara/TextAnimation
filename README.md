@@ -10,3 +10,7 @@ https://t.me/TECHHAMARA
 Preview this Extension 
 <br>
 https://youtu.be/30lDAEMxCzQ
+<br>
+You Can Love My Work then like and feel free to Donate me PAYPAL
+<br>https://www.paypal.me/techhamara
+
